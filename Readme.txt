@@ -1,5 +1,3 @@
-Please use internet sir as i imported some links for my design like fonts etc.
+My cheeseCake Project
 
-thank you__
-
-Manuel Mark
+-Manuel Mark
